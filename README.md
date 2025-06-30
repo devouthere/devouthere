@@ -3,7 +3,7 @@
 
 ###
 
-<img align="right" height="150" src="https://www.icegif.com/wp-content/uploads/2025/03/darth-vader-icegif-11.gif"  />
+
 
 ###
 
